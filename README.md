@@ -4,8 +4,6 @@
 
 ## SYCloud速云梯-高性价比电脑手机翻墙梯子推荐
 
-[![](https://pic.imgdb.cn/item/65241962c458853aef6c26c5.jpg)](https://go.51tz.cc/sycloud)
-
 [![](https://pic.imgdb.cn/item/659371dac458853aef989f04.jpg)](https://go.51tz.cc/sycloud)
 
 [**点击直达官网**](https://go.51tz.cc/sycloud)
